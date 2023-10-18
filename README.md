@@ -7,4 +7,4 @@
 ## Pai 
 ## Marido
 
-Leio enquanto escuto heave metal ou música clássica, equlíbrio é tudo!!
+Medito ouvindo heave metal, equlíbrio é tudo!!
