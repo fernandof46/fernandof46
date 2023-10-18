@@ -7,4 +7,4 @@
 ## Pai 
 ## Marido
 
-Medito ouvindo heave metal, equlíbrio é tudo!!
+Medito ouvindo heavy metal, equlíbrio é tudo!!
