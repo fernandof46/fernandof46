@@ -8,4 +8,4 @@
 
 
 
-Medito ouvindo heavy metal, equlíbrio é tudo!!
+
