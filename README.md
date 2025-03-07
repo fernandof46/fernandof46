@@ -1,9 +1,5 @@
 # Fernando Ferreira
 
-![Banner](https://via.placeholder.com/1200x300.png?text=Bem-vindo+ao+meu+perfil)
-
----
-
 ## 👨‍💻 Desenvolvedor e Analista de Sistemas
 
 Olá! Eu sou o Fernando, desenvolvedor e analista de sistemas apaixonado por tecnologia e inovação. 
